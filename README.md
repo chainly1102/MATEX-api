@@ -1,1 +1,1 @@
-# MATEX-api
+# MATEXS CO., LTD.
